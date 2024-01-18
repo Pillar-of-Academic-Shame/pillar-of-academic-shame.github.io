@@ -4,7 +4,7 @@
 
 **举报人（排名不分先后）：吕辰睿、闫琪莉、王泽楠、郭文强、张黎、韩衍旭、张宁、刘肖萌、黄璐、宁佳欣、符秋月。**
 
-<img src="readme/ECD78214574571E2F7B5297AC3D_34DAD12F_2B683.png" alt="img" style="zoom:50%;" />
+<center><img src="readme/ECD78214574571E2F7B5297AC3D_34DAD12F_2B683.png" alt="img" style="zoom:50%;" /></center>
 
 <center>华中农业大学 黄飞若</center>
 
