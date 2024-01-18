@@ -5,3 +5,7 @@
 3. 2024/01/17 [黄飞若主页快照](attachments/screencapture-cncc-bingj-cache-aspx-2024-01-18-14_13_59.png)
 
 4. 2024/01/18 [华中农业大学通报「教师黄某某被举报学术不端」，称启动调查程序，调查程序是怎样的？哪些信息值得关注？ - 知乎 (zhihu.com)](https://www.zhihu.com/question/639885875)
+
+5. 2024/01/18 [王同心-博士毕业答辩通告](attachments/screencapture-yjs-hzau-edu-cn-xghxqy-dbggxqy-jsp-2024-01-18-15_47_24.png)
+
+6. 2024/01/18 [姚卫磊202310.png](attachments/姚卫磊202310.png)
